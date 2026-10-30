@@ -1,0 +1,2 @@
+# abadijayalogam
+logam emas
